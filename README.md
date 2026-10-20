@@ -1,4 +1,7 @@
+**How I got here**
+
 “I was passionate about computer science and coding ever since I was child” 
+
 **CUT.** 
 
 Well, that was an exaggeration, Muneeba. Let’s start over and tell the real story.
